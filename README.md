@@ -6,4 +6,4 @@ My name is Sakshi Yadav and I love to discover in each and every Programming lan
 - 💬 Ask me about regarding any programming stuff.
 - 📫 How to reach me: https://github.com/Sakshi-Yadav78/Sakshi-Yadav78
 - 📫 Pronouns: She/Her
-- ⚡ Fun fact: I can talk in Foreign language that is French.
+- ⚡ Fun fact: I can communicate in Foreign language that is French.
